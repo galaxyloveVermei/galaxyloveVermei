@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @galxyvgx
+- 👀 I’m interested in vs code, python, c++
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me... my telegram: @galxyvgx   :3
